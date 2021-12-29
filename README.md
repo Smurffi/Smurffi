@@ -1,2 +1,2 @@
 # Smurffi
-- Salainen käyttäjä
+- Salainen käyttäjä jos ei oo yhtää midii ehkä.....
